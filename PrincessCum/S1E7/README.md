@@ -8,4 +8,4 @@ Video:  00:11:52
 Script: 00:11:38 (14s of end credits left blank)
 
 ## Heatmap
-https://github.com/jamfries1992/scriptsbyjamfries1992/raw/main/PrincessCum/S1E7/heatmap.png
+![alt text](https://github.com/jamfries1992/scriptsbyjamfries1992/raw/main/PrincessCum/S1E7/heatmap.png "Heatmap")

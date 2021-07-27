@@ -6,7 +6,8 @@ URL:    https://www.xvideos.com/video39089744/princesscum_-_cheating_is_fun_till
 Video:  00:11:52
 
 ## Script Information
+### Handy - V1
 Script: 00:11:38 (14s of end credits left blank)
 
-## Heatmap
-![alt text](https://github.com/jamfries1992/scriptsbyjamfries1992/raw/main/PrincessCum/S1E7/heatmap.png "Heatmap")
+## Heatmaps
+![alt text](https://github.com/jamfries1992/scriptsbyjamfries1992/raw/main/PrincessCum/S1E7/heatmap.png "Heatmap - Handy v1")

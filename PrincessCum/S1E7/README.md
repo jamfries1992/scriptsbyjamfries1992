@@ -9,4 +9,6 @@ Video:  00:11:52
 ### Handy - V1 (CheatingIsFun.handy.funscript)
 Script: 00:11:38 (14s of end credits left blank)
 
+The script is a little bit jumpy, its my first real one and not the easiest to script, so don't judge too harshly.
+
 ![alt text](https://github.com/jamfries1992/scriptsbyjamfries1992/raw/main/PrincessCum/S1E7/heatmap.png "Heatmap - Handy v1")

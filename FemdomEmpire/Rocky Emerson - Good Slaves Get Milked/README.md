@@ -10,4 +10,4 @@ Video:  00:12:46
 Script: 00:12:46
 
 
-![alt text](https://github.com/jamfries1992/scriptsbyjamfries1992/raw/main/Femdom%20Empire/Rocky%20Emerson%20-%20Good%20Slaves%20Get%20Milked/heatmap.png "Heatmap - Handy v1")
+![alt text](https://raw.githubusercontent.com/jamfries1992/scriptsbyjamfries1992/main/FemdomEmpire/Rocky%20Emerson%20-%20Good%20Slaves%20Get%20Milked/heatmap.png "Heatmap - Handy v1")

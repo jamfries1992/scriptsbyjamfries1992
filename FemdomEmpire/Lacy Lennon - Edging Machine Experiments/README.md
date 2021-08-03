@@ -10,4 +10,4 @@ Video:  00:20:52
 Script: 00:20:52
 
 
-![alt text](https://github.com/jamfries1992/scriptsbyjamfries1992/raw/main/Femdom%20Empire/Lucy%20Lennon%20-%20-Edging%20Machine%20Experiments/heatmap.png "Heatmap - Handy v1")
+![alt text](https://raw.githubusercontent.com/jamfries1992/scriptsbyjamfries1992/main/FemdomEmpire/Lacy%20Lennon%20-%20Edging%20Machine%20Experiments/heatmap.png "Heatmap - Handy v1")

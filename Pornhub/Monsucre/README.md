@@ -10,4 +10,4 @@ Video:  00:09:10
 Script: 00:09:10
 
 
-![alt text](https://raw.githubusercontent.com/jamfries1992/scriptsbyjamfries1992/main/Pornhub/Monsucre/Monsucre%20-%20Lets%20Masturbate%20Together%20/heatmap.png "Heatmap - Handy v1")
+![alt text](https://github.com/jamfries1992/scriptsbyjamfries1992/raw/main/Pornhub/Monsucre/heatmap.png "Heatmap - Handy v1")
